@@ -1,0 +1,1 @@
+# Magazine_task_for_Maksim
